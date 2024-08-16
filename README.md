@@ -1,2 +1,2 @@
-[https://drive.google.com/drive/folders/12D6vFJ85H6dEKro4ZouyLxL02IyyXQYQ?usp=drive_link](https://drive.google.com/drive/folders/12D6vFJ85H6dEKro4ZouyLxL02IyyXQYQ?usp=sharing)    (access this link to get the pt file and video of the bag )
+[https://drive.google.com/drive/folders/12D6vFJ85H6dEKro4ZouyLxL02IyyXQYQ?usp=drive_link](https://drive.google.com/drive/folders/12D6vFJ85H6dEKro4ZouyLxL02IyyXQYQ?usp=sharing)    (access this link to get the pt file and video of the bag ) and (please notice this the yellow named pt file for the yellow color bag and loaded_bag named pt file for white color bag and another one is for the roll type bag )
 
